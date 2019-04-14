@@ -1,5 +1,0 @@
-JuarezMirandaDaCosta
-
-MG - Brasil
-
-#############
