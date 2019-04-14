@@ -1,4 +1,6 @@
-Juarez Miranda da Costa
+Juarez Miranda
+
+Edição para o repositório compartilhado
 
 MG - Brasil
 
